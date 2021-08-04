@@ -1,0 +1,1 @@
+Estou com um pouco de dificuldade nas aulas.
